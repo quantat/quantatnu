@@ -1,0 +1,2 @@
+# quantatnu
+Quần tất nữ – phụ kiện của phái đẹp Dù là mùa nào trong năm, mừa lạnh hay mùa nóng, quần tất nữ da chân luôn có một chỗ đứng, không thể thiếu trong tủ đồ của chị em phụ nữ. Dù bạn bao nhiêu tuổi, dù 15 hay 60 thì chiếc quần tất đều cần thiết, đặc biệt khi phối với những chiếc váy ngắn. Chiếc quần tất nữ giúp bạn che đi những khuyết điểm của đôi chân. Vậy lựa chọn quần tất như thế nào và mua ở đâu mới đảm bảo chất lượng? Hãy đến Hanhanshop của chúng tôi.
